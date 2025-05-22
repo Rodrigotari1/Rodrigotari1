@@ -22,6 +22,6 @@
 - kept dealroom.co job while at uni, started coding.  
 - passed 42 entrance exam with 300hrs in 26 days.
 - Won Helbling business case at START Hack 2025, europe’s largest entrepreneurial hackathon.
-  built AI voice agent with ML for personality detection, top 5/150+ teams, pitched twice to 500+.
+  built AI voice agent with ML for personality detection, finals and top 5/150+ teams, pitched twice to 500+.
 - graduated business school, finishing 42.  
 - built first full-stack web app and other projects.
