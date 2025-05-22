@@ -7,7 +7,7 @@
 **19 yrs (2021):**  
 - started business school (#1 hospitality in World).  
 - worked at 5-star hotel in madrid. taught me how to deal with people irl.
-- tried coding, didn’t stick.
+- tried coding, didn’t stick. (tuto hell)
 
 **20 yrs (2022):**  
 - cold outreach to pro Muay Thai fighters to find a legit 1-month camp near Bangkok.  
