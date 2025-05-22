@@ -1,3 +1,5 @@
+few highligths
+
 **13-18 yrs (2014-2020):**  
 - moved to england for a rugby scholarship at 13, played till 18. regional-team in sout west.  
 - ran ig sports pages at 15, hit a few thousand followers and made few bucks. picked it up later (4M Impressions, 30k followers in one month)
