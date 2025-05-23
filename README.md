@@ -27,3 +27,4 @@ few highligths
   built AI voice agent with ML for personality detection, finals and top 5/150+ teams, pitched twice to 500+.
 - graduated business school, finishing 42.  
 - built first full-stack web app and other projects.
+- contractor work for YC company
