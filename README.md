@@ -19,7 +19,7 @@ few highligths
 - trained 6hrs/day with thai champions, 15km daily runs, never ran before.
 - got chased by dogs on a daily basis and slept next to fighting bags.
 
-  **19 yrs (2021):**  
+**19 yrs (2021):**  
 - started business school (#1 hospitality in world).  
 - worked at 5-star hotel in madrid. taught me how to deal with people.
 - tried coding, didn’t stick. (tuto hell)
