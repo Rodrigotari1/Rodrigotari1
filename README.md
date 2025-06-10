@@ -15,7 +15,7 @@ few highligths
 - tech sales was cool but i wanted to build.
   
 **20 yrs (2022):**  
-- cold outreach to pro muay thai fighters to find a legit month camp near bangkok.  
+- cold outreach to pro muay thai fighters to find a legit month camp near bangkok.
 - trained 6hrs/day with thai champions, 15km daily runs, never ran before.
 - got chased by dogs on a daily basis and slept next to fighting bags.
 
