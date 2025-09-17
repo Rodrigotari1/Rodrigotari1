@@ -4,7 +4,6 @@ few highligths
 - contractor work for YC company
 - Won Helbling business case at START Hack 2025, europe’s largest entrepreneurial hackathon.
 - built AI voice agent with ML for personality detection, finals and top 5/150+ teams, pitched twice to 500+.
-- built first full-stack web app and other projects.
 - graduated business school, finishing 42.  
 - passed 42 entrance exam (<10% acceptance) with 300hrs in 26 days.
 - kept dealroom.co job while at uni, started coding.  
