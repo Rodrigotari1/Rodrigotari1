@@ -1,11 +1,11 @@
-few highligths
+few highlights
 
 **22-23 yrs (2024-2025):**  
 - contractor work for YC company
+- YC Paris startup school
 - Won Helbling business case at START Hack 2025, europe’s largest entrepreneurial hackathon.
 - built AI voice agent with ML for personality detection, finals and top 5/150+ teams, pitched twice to 500+.
 - graduated business school, finishing 42.  
-- passed 42 entrance exam (<10% acceptance) with 300hrs in 26 days.
 - kept dealroom.co job while at uni, started coding.  
 
 **21 yrs (2023):**  
