@@ -11,10 +11,9 @@ few highlights
 **21 yrs (2023):**  
 - business school sucked, jumped into tech.
 - joined dealroom.co in amsterdam, global data platform, sold to VCs and governments.
-- tech sales was cool but i wanted to build.
-  
+-   
 **20 yrs (2022):**  
-- cold outreach to pro muay thai fighters to find a legit month camp near bangkok.
+- cold outreach to pro muay thai fighters to find a legit camp near bangkok.
 - trained 6hrs/day with thai champions, 15km daily runs, never ran before.
 - got chased by dogs on a daily basis and slept next to fighting bags.
 
@@ -23,8 +22,8 @@ few highlights
 - worked at 5-star hotel in madrid. taught me how to deal with people.
 - tried coding, didn’t stick. (tuto hell)
 
-**13-18 yrs (2014-2020):**  
-- moved to england for a rugby scholarship at 13, played till 18. regional-team selection in sout west.  
+**12-18 yrs (2014-2020):**  
+- moved to england for a rugby scholarship at 12, played till 18. regional-team selection in south west.  
 - ran ig sports pages at 15, hit a few thousand followers and made few bucks. picked it up later (4M Impressions, 30k followers in one month)
 - made wine at 16, sold some at 18 in france.  
 - graduated high school, good grades.
