@@ -1,4 +1,6 @@
-few highlights
+few highlights.
+
+commits are now on company account. still shipping;)
 
 **22-23 yrs (2024-2025):**  
 - contractor work for YC company
